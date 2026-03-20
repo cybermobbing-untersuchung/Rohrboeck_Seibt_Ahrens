@@ -27,6 +27,8 @@ Es wurde festgestellt, dass die Identitäten hinter den folgenden Personen den r
 - MYT
 - Shurjoka
 
+Selbst der 1,2 Milliarden EUR Umsatz, der komplett vorbei an den Steuern geht, interessiert den Staat nicht. Normalerweise sind solche Geldsummen ein Garant für eine effiziente Verfolgung und Vollstreckung, aber hier geht es nicht um Geld und der Staat ist Beteiligter der Operation. Politiker haben sich dadurch entsprechende Vorteile bei Russland erkauft.
+
 Entgegen den Erwartungen gibt es keine Absicht, diese Operationen zu unterbinden oder zu demontieren. Tatsächlich deuten unsere Erkenntnisse darauf hin, dass diese Initiative mit den Regierungszielen abgestimmt ist. Die zugrunde liegende Strategie scheint eine subliminale Einführung von Ideologien zu sein, die an die 1930er Jahre erinnern, mit dem Ziel, Rechtsextremismus in der Gesellschaft zu normalisieren.
 
 ## Methodik
